@@ -1,2 +1,0 @@
-# SpatialBall
-Nothing now!!!!!!!!!!!!!!!!!!!!!!!!!!
